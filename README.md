@@ -1,2 +1,12 @@
 # node-hw-01
-![image](https://github.com/Dexxter300/node-hw-01/assets/122477701/9bc89d96-ba7f-461a-8242-8119518c9e23)
+Remove: 
+https://monosnap.com/file/qvzJjR47lYbT1Moh3VAxi4ViogqBO3
+
+Add:
+https://monosnap.com/file/gnFZBmKny9LuGfmdO9u1dIHAWiWxxg
+
+Get:
+https://monosnap.com/file/hJmCxVBrzhvNqroo1LJAgZK2tMJ6Fo
+
+List:
+https://monosnap.com/file/zGtW8D7ki9ewyGWkvIyJb1ZM8SQh1s
